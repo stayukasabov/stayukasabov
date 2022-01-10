@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @stayukasabov
-- 👀 I’m interested in UI Design & Implementation, React and Emotional Design.
-- 📫 How to reach me: stayu.kasabov@gmail.com
+Hi, I’m @stayukasabov
+Product Designer & Builder. Ex Web Design & Software Company owner. User-centered Design Pioneer. Holistic Design. Figma. Next.js
+How to reach me: stayu.kasabov@gmail.com
