@@ -1,3 +1,3 @@
 Hi, I’m @stayukasabov
-Product Designer & Builder. Ex Web Design & Software Company owner. UCD Pioneer. Holistic Design. Figma.
+Product Designer with Holistic Production Expertise∙ Design Systems ∙ Prototyping and building MVP’s with AI ∙ Ex Web Dev Agency owner ∙ 20+ YOE 
 How to reach me: stayu.kasabov@gmail.com
